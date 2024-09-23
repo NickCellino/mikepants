@@ -5,7 +5,7 @@
 
 ![Mike Pants](./pants.jpeg)
 
-In the world of indoor cycling, one name reigns supreme: Mike Pants. Dubbed the "Michael Jordan of Peloton," Pants’ journey from Peloton enthusiast to professional cyclist is one of the most astonishing stories in modern sports history. A legend on and off the bike, Pants not only redefined Peloton culture but also made a jaw-dropping leap into the world of competitive cycling, winning the Tour de France on his first attempt.
+In the world of indoor cycling, one name reigns supreme: Mike Pants. Dubbed the "Michael Jordan of Peloton," Pants’ journey from Peloton enthusiast to professional cyclist is one of the most astonishing stories in modern sports history. A legend on and off the bike, Pants (aka "The Vice President of Peloton," aka "The Spin King," aka "Lord of the Leaderboard," aka "The Human Dynamo," aka "The Tour de Force") not only redefined Peloton culture but also made a jaw-dropping leap into the world of competitive cycling, winning the Tour de France on his first attempt.
 
 ### A Star is Born
 
